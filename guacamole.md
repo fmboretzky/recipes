@@ -1,6 +1,6 @@
 **Ingredients:**
 - 2 avocados 🥑
-- 1 lime
+- 1 lime 🍋‍🟩
 - 1/2 red onion 🧅
 - 2 tsp salt 🧂
 
